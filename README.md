@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LineFaure
+- 👀 I’m interested in economics, computer sciences including cryptography
+- 🌱 I’m currently learning....a lot of things !
+- 💞️ I’m looking to collaborate on climate change tools
+- 📫 How to reach me : pelinquine@gmail.com
